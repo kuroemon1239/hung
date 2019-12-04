@@ -1,2 +1,2 @@
-# hung
-notthing
+# kuro
+black like darkness of void
